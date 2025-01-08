@@ -1,1 +1,1 @@
-# Ьy completed сourses and received certificates
+# My completed сourses and received certificates
